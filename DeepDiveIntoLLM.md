@@ -2,6 +2,8 @@
 
 **Total Duration:** ~3h 32m | **24 Chapters**
 
+**Link:** https://youtu.be/7xTGNNLPyMI
+
 ## Table of Contents
 
 1. [Introduction](#1-introduction-000000) — `00:00:00`
